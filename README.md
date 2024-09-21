@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @MrsAiles
+- 👋 Hi, I’m @MrsAiles.
 - 👀 I’m interested in doing it right the first time.
 - 🌱 I’m currently learning how to step out of the box
 - 💞️ I’m looking to give the consumer/customer what they ask for.
